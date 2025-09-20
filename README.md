@@ -1,5 +1,9 @@
 # test-repo
 
-I
-readme
-r
+ed
+
+d
+d
+d
+d
+d
